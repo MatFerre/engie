@@ -1,16 +1,3 @@
-KUVABINA Irina (ENGIE SA) a rejoint la conversation.
-
- 
-KUVABINA Irina (ENGIE SA) a nommé la réunion ensae.
-
- 
-DIABIRA Ibrahim et 3 autres ont été invités à la réunion.
-
- 
-13:59 La réunion a commencé
-
- 
-Ayman GRAZIANA a été invité(e) à la réunion.
 
  
 # -------------------------------------------------------------------------------- NOTEBOOK-CELL: CODE
